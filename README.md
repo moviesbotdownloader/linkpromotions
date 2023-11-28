@@ -1,0 +1,2 @@
+# linkpromotions
+Start earning
